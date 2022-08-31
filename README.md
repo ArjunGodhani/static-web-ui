@@ -1,0 +1,1 @@
+# static-web-ui![screencapture-file-C-Users-DELL-Desktop-static-web-ui-index-html-2022-08-31-14_49_25](https://user-images.githubusercontent.com/111860713/187644813-b0e650f3-0d39-413c-a077-cb910b431b90.png)
